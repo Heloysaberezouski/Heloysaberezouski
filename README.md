@@ -1,16 +1,16 @@
-### Hi there 👋
+### Minha hitória 🫀
 
-<!--
-**Heloysaberezouski/Heloysaberezouski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Meu nome é Heloysa Berezouski
+Moro na Rua goias 353
+Moro em Londrina Paraná 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Tenho 17 anos, e uma curiosidade é que não nasci em londrina
+meu gostos são bem peculiares, quem me conhece sabe 
+ainda não sei o que eu quero para a minha vida 
+
+
+eu gosto e fazer academia e sair final de semana  
+um defeito que eu tenho é não ficar em casa 
+depois de sair do colégio eu vou direto trabalhar
